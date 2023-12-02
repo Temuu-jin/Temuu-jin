@@ -14,4 +14,4 @@ Currently, I’m channeling my efforts to enhance my command over the technologi
 
 Colleagues value my independent work ethic and determined problem-solving. Yet, I equally embrace teamwork for its unparalleled potential to achieve excellence.
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/temucin-damdinjamts-kintaert/), delve into my projects on GitHub, or reach out via [e-mail](temucin.d.k@gmail.com). I’m looking forward to our potential collaboration! 📫
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/temucin-damdinjamts-kintaert/), delve into my projects on GitHub, or reach out via e-mail (temucin.d.k@gmail.com). I’m looking forward to our potential collaboration! 📫
